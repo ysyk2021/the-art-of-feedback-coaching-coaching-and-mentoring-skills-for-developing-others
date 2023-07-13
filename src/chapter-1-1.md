@@ -1,4 +1,4 @@
-Chapter 1: Introduction to Feedback Coaching: Defining Feedback Coaching and Its Importance in the Workplace
+Defining Feedback Coaching and Its Importance in the Workplace
 ============================================================================================================
 
 Feedback coaching is a critical component of professional development and growth. In this chapter, we will define feedback coaching and explore its importance in the workplace.

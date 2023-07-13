@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Psychology of Feedback Coaching: Recognizing the Different Factors that Impact Feedback Coaching Effectiveness
+Recognizing the Different Factors that Impact Feedback Coaching Effectiveness
 ===========================================================================================================================================
 
 Understanding the psychology of feedback coaching is essential for effective coaching and mentoring. In this chapter, we will explore the different factors that impact feedback coaching effectiveness.

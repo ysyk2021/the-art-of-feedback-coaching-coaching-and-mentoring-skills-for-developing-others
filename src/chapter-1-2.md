@@ -1,4 +1,4 @@
-Chapter 1: Introduction to Feedback Coaching: Historical Perspectives on Coaching and Mentoring Theory and Practice
+Historical Perspectives on Coaching and Mentoring Theory and Practice
 ===================================================================================================================
 
 Coaching and mentoring have a rich history dating back centuries. In this chapter, we will explore the historical perspectives on coaching and mentoring theory and practice.

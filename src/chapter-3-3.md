@@ -1,4 +1,4 @@
-Chapter 3: Developing a Feedback Coaching Framework: Tailoring Your Approach to Different Types of Individuals and Situations
+Tailoring Your Approach to Different Types of Individuals and Situations
 =============================================================================================================================
 
 Developing a feedback coaching framework is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for tailoring your approach to different types of individuals and situations.

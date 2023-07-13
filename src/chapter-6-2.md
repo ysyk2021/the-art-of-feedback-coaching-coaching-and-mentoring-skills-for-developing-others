@@ -1,4 +1,4 @@
-Chapter 6: Setting Goals and Objectives: Developing Performance Metrics and Benchmarks for Coaching and Mentoring
+Developing Performance Metrics and Benchmarks for Coaching and Mentoring
 =================================================================================================================
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for developing performance metrics and benchmarks for coaching and mentoring.

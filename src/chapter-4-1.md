@@ -1,4 +1,4 @@
-Chapter 4: Providing Effective Feedback: Understanding the Importance of Effective Feedback in Coaching and Mentoring
+Understanding the Importance of Effective Feedback in Coaching and Mentoring
 =====================================================================================================================
 
 Providing effective feedback is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for understanding the importance of effective feedback in coaching and mentoring.

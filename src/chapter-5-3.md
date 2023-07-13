@@ -1,4 +1,4 @@
-Chapter 5: Building Rapport and Trust: Fostering a Sense of Connection and Community Within Coaching Relationships
+Fostering a Sense of Connection and Community Within Coaching Relationships
 ==================================================================================================================
 
 Building rapport and trust is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for fostering a sense of connection and community within coaching relationships.

@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Psychology of Feedback Coaching: Identifying Common Barriers to Effective Feedback Coaching
+Identifying Common Barriers to Effective Feedback Coaching
 ========================================================================================================================
 
 Understanding the common barriers to effective feedback coaching is essential for coaches and mentors to overcome these obstacles and achieve successful outcomes. In this chapter, we will explore some of the most common barriers to effective feedback coaching.

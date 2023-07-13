@@ -1,4 +1,4 @@
-Chapter 1: Introduction to Feedback Coaching: The Challenges and Opportunities of Developing Others through Feedback Coaching
+The Challenges and Opportunities of Developing Others through Feedback Coaching
 =============================================================================================================================
 
 Feedback coaching is a powerful tool for developing others and promoting growth and development in both personal and professional settings. In this chapter, we will explore the challenges and opportunities of feedback coaching.

@@ -1,4 +1,4 @@
-Chapter 9: Conclusion: Mastering Feedback Coaching: The Importance of Feedback Coaching for Developing Others in the Workplace
+The Importance of Feedback Coaching for Developing Others in the Workplace
 ==============================================================================================================================
 
 Feedback coaching is a critical component of developing others in the workplace. In this book, we have explored the techniques and strategies necessary for effective feedback coaching, including understanding the psychology of feedback coaching, developing a feedback coaching framework, and developing self-awareness and self-management skills.

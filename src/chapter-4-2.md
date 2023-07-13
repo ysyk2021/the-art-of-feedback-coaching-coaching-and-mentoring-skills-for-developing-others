@@ -1,4 +1,4 @@
-Chapter 4: Providing Effective Feedback: Developing Strategies for Providing Constructive Feedback
+Developing Strategies for Providing Constructive Feedback
 ==================================================================================================
 
 Providing effective feedback is essential for developing others in the workplace. In this chapter, we will explore the techniques and strategies necessary for providing constructive feedback that promotes personal and professional growth and development.

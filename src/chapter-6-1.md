@@ -1,4 +1,4 @@
-Chapter 6: Setting Goals and Objectives: Establishing SMART Goals and Objectives for Coaching and Mentoring
+Establishing SMART Goals and Objectives for Coaching and Mentoring
 ===========================================================================================================
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for establishing SMART goals and objectives for coaching and mentoring.

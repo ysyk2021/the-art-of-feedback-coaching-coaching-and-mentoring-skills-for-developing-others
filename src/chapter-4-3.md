@@ -1,4 +1,4 @@
-Chapter 4: Providing Effective Feedback: Handling Difficult Feedback Conversations with Empathy and Respect
+Handling Difficult Feedback Conversations with Empathy and Respect
 ===========================================================================================================
 
 Handling difficult feedback conversations with empathy and respect is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for handling difficult feedback conversations in a constructive and supportive manner.

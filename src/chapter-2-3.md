@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Psychology of Feedback Coaching: Understanding the Role of Empathy and Trust in Feedback Coaching Relationships
+Understanding the Role of Empathy and Trust in Feedback Coaching Relationships
 ============================================================================================================================================
 
 Understanding the psychology of feedback coaching is essential for effective coaching and mentoring. In this chapter, we will explore the role of empathy and trust in feedback coaching relationships.

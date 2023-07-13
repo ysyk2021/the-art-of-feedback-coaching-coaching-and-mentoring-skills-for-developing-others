@@ -1,4 +1,4 @@
-Chapter 8: Navigating Diversity and Cultural Differences: Understanding the Impact of Diversity and Cultural Differences on Coaching and Mentoring
+Understanding the Impact of Diversity and Cultural Differences on Coaching and Mentoring
 ==================================================================================================================================================
 
 Understanding the impact of diversity and cultural differences is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for understanding the impact of diversity and cultural differences on coaching and mentoring.

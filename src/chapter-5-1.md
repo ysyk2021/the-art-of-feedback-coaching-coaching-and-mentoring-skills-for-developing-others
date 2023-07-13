@@ -1,4 +1,4 @@
-Chapter 5: Building Rapport and Trust: Encouraging Rapport and Trust Through Active Listening and Empathy
+Encouraging Rapport and Trust Through Active Listening and Empathy
 =========================================================================================================
 
 Building rapport and trust is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for encouraging rapport and trust through active listening and empathy.

@@ -1,4 +1,4 @@
-Chapter 6: Setting Goals and Objectives: Holding Individuals Accountable for Their Development and Growth
+Holding Individuals Accountable for Their Development and Growth
 =========================================================================================================
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for holding individuals accountable for their development and growth.

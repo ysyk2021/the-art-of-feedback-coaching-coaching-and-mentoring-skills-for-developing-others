@@ -1,4 +1,4 @@
-Chapter 9: Conclusion: Mastering Feedback Coaching: Emerging Trends and Future Directions in Coaching and Mentoring Theory and Practice
+Emerging Trends and Future Directions in Coaching and Mentoring Theory and Practice
 =======================================================================================================================================
 
 Feedback coaching is a critical component of developing others in the workplace. In this book, we have explored the techniques and strategies necessary for effective feedback coaching, including understanding the psychology of feedback coaching, developing a feedback coaching framework, providing effective feedback, handling difficult feedback conversations with empathy and respect, and building rapport and trust.

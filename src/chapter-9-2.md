@@ -1,4 +1,4 @@
-Chapter 9: Conclusion: Mastering Feedback Coaching: Best Practices for Developing Effective Feedback Coaching Skills and Strategies
+Best Practices for Developing Effective Feedback Coaching Skills and Strategies
 ===================================================================================================================================
 
 Feedback coaching is a critical component of developing others in the workplace. In this book, we have explored the techniques and strategies necessary for effective feedback coaching, including understanding the psychology of feedback coaching, developing a feedback coaching framework, providing effective feedback, and handling difficult feedback conversations with empathy and respect.

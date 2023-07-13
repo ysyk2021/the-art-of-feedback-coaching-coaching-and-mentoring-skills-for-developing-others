@@ -1,4 +1,4 @@
-Chapter 5: Building Rapport and Trust: Developing Strategies for Building Strong Coaching Relationships
+Developing Strategies for Building Strong Coaching Relationships
 =======================================================================================================
 
 Building rapport and trust is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for building strong coaching relationships.

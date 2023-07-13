@@ -1,4 +1,4 @@
-Chapter 3: Developing a Feedback Coaching Framework: Assessing Your Own Feedback Coaching Needs and Goals
+Assessing Your Own Feedback Coaching Needs and Goals
 =========================================================================================================
 
 Developing a feedback coaching framework is essential for effective coaching and mentoring. In this chapter, we will explore the process of assessing your own feedback coaching needs and goals.

@@ -1,4 +1,4 @@
-Chapter 3: Developing a Feedback Coaching Framework: Creating a Plan for Feedback Coaching Based on Shared Values and Priorities
+Creating a Plan for Feedback Coaching Based on Shared Values and Priorities
 ================================================================================================================================
 
 Creating a plan for feedback coaching based on shared values and priorities is crucial for effective coaching and mentoring. In this chapter, we will explore the process of creating a feedback coaching plan that reflects shared values and priorities.

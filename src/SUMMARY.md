@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction to Feedback Coaching](chapter-1.md)
+- [Chapter 1: Introduction to Feedback Coaching](README.md)
   - [Defining feedback coaching and its importance in the workplace](chapter-1-1.md)
   - [Historical perspectives on coaching and mentoring theory and practice](chapter-1-2.md)
   - [The challenges and opportunities of developing others through feedback coaching](chapter-1-3.md)
@@ -33,9 +32,5 @@
   - [Understanding the impact of diversity and cultural differences on coaching and mentoring](chapter-8-1.md)
   - [Developing strategies for navigating cultural and organizational differences in feedback coaching](chapter-8-2.md)
   - [Fostering inclusion and diversity within coaching relationships](chapter-8-3.md)
-- [Chapter 9: Conclusion: Mastering Feedback Coaching](chapter-9.md)
-  - [The importance of feedback coaching for developing others in the workplace](chapter-9-1.md)
-  - [Best practices for developing effective feedback coaching skills and strategies](chapter-9-2.md)
-  - [Emerging trends and future directions in coaching and mentoring theory and practice](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
