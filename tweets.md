@@ -8,5 +8,3 @@
 8. Invest in your professional development and learn how to coach and mentor others with confidence with #TheArtOfFeedbackCoaching.
 9. Want to build better relationships and help others succeed? Get your copy of #TheArtOfFeedbackCoaching today.
 10. Unlock your potential as a coach and mentor with #TheArtOfFeedbackCoaching - the ultimate guide to developing others.
-
-

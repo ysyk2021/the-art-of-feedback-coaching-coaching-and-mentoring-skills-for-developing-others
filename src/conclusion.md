@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 9: Conclusion: Mastering Feedback Coaching
-==================================================
-
 Feedback coaching is a crucial skill for developing individuals in the workplace, and this book has explored the various techniques and strategies necessary to become a successful feedback coach. In this final chapter, we will summarize the key points covered in this book and highlight emerging trends and future directions in coaching and mentoring theory and practice.
 
 The Importance of Feedback Coaching for Developing Others in the Workplace
