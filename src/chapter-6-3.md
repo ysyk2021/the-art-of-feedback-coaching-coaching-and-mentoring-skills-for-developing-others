@@ -3,15 +3,6 @@ Holding Individuals Accountable for Their Development and Growth
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for holding individuals accountable for their development and growth.
 
-Effective coaching relationships involve:
-
-* Establishing clear and measurable goals
-* Identifying key performance indicators
-* Developing action plans
-* Monitoring progress towards goals
-* Providing ongoing support and encouragement
-* Holding individuals accountable for their development and growth
-
 Establishing Clear and Measurable Goals
 ---------------------------------------
 

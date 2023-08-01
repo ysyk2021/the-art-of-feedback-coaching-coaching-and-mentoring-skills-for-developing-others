@@ -3,15 +3,6 @@ Establishing SMART Goals and Objectives for Coaching and Mentoring
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for establishing SMART goals and objectives for coaching and mentoring.
 
-Effective coaching relationships involve:
-
-* Establishing clear and measurable goals
-* Identifying key performance indicators
-* Developing action plans
-* Monitoring progress towards goals
-* Providing ongoing support and encouragement
-* Holding individuals accountable for their development and growth
-
 Establishing Clear and Measurable Goals
 ---------------------------------------
 

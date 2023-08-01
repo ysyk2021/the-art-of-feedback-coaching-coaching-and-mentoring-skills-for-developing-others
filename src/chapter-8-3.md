@@ -3,14 +3,6 @@ Fostering Inclusion and Diversity Within Coaching Relationships
 
 Fostering inclusion and diversity is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for fostering inclusion and diversity within coaching relationships.
 
-Effective coaching relationships involve:
-
-* Recognizing and valuing diverse perspectives
-* Creating a safe and inclusive environment
-* Encouraging open communication
-* Addressing potential biases and assumptions
-* Building cross-cultural competence
-
 Recognizing and Valuing Diverse Perspectives
 --------------------------------------------
 

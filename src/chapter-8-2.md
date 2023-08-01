@@ -3,14 +3,6 @@ Developing Strategies for Navigating Cultural and Organizational Differences in 
 
 Navigating diversity and cultural differences is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for developing strategies for navigating cultural and organizational differences in feedback coaching.
 
-Effective coaching relationships involve:
-
-* Understanding and respecting cultural differences
-* Using inclusive language and communication styles
-* Adapting coaching styles to meet individual needs
-* Addressing potential biases and assumptions
-* Building cross-cultural competence
-
 Understanding and Respecting Cultural Differences
 -------------------------------------------------
 

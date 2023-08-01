@@ -3,14 +3,6 @@ Tailoring Your Approach to Different Types of Individuals and Situations
 
 Developing a feedback coaching framework is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for tailoring your approach to different types of individuals and situations.
 
-Effective coaching relationships involve:
-
-* Understanding individual learning styles
-* Identifying strengths and weaknesses
-* Adapting coaching styles to meet individual needs
-* Addressing potential barriers to success
-* Creating a supportive environment
-
 Understanding Individual Learning Styles
 ----------------------------------------
 

@@ -3,14 +3,6 @@ Understanding the Impact of Diversity and Cultural Differences on Coaching and M
 
 Understanding the impact of diversity and cultural differences is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for understanding the impact of diversity and cultural differences on coaching and mentoring.
 
-Effective coaching relationships involve:
-
-* Recognizing and valuing diverse perspectives
-* Building cross-cultural competence
-* Adapting coaching styles to meet individual needs
-* Addressing potential biases and assumptions
-* Creating a safe and inclusive environment
-
 Recognizing and Valuing Diverse Perspectives
 --------------------------------------------
 
