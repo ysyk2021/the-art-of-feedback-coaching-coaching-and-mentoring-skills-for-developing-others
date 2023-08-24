@@ -1,4 +1,3 @@
-# Assessing Your Own Feedback Coaching Needs and Goals
 
 In this chapter, we will explore the importance of self-assessment when it comes to feedback coaching. Developing a deep understanding of your own needs and goals is crucial in becoming an effective feedback coach. By taking the time to evaluate your skills and areas for improvement, you can enhance your ability to support and develop others.
 

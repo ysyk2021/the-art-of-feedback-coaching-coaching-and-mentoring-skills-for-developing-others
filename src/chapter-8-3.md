@@ -1,5 +1,3 @@
-Fostering Inclusion and Diversity Within Coaching Relationships
-=========================================================================================================================
 
 Fostering inclusion and diversity is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for fostering inclusion and diversity within coaching relationships.
 

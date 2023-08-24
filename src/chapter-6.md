@@ -1,5 +1,3 @@
-Chapter 6: Setting Goals and Objectives
-=======================================
 
 Setting goals and objectives is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for establishing SMART goals and objectives, developing performance metrics and benchmarks, and holding individuals accountable for their development and growth.
 
@@ -49,5 +47,4 @@ To hold individuals accountable for their development and growth, coaches should
 By holding individuals accountable for their development and growth, coaches can help them to make meaningful progress towards their personal and professional aspirations and contribute to a positive organizational culture.
 
 In conclusion, setting goals and objectives is essential for effective coaching and mentoring. By establishing SMART goals and objectives, developing performance metrics and benchmarks, and holding individuals accountable for their development and growth, coaches can help individuals to make meaningful progress towards their personal and professional aspirations and contribute to a positive organizational culture.
-
 

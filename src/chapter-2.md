@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Feedback Coaching
-============================================================
 
 Understanding the psychology of feedback coaching is essential for effective coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for recognizing the different factors that impact feedback coaching effectiveness, identifying common barriers to effective feedback coaching, and understanding the role of empathy and trust in feedback coaching relationships.
 

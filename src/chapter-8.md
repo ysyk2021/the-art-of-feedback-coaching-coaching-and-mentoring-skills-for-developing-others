@@ -1,5 +1,3 @@
-Chapter 8: Navigating Diversity and Cultural Differences
-========================================================
 
 As the workplace becomes increasingly diverse, it is essential for feedback coaches to navigate cultural differences and promote inclusion. In this chapter, we will explore the impact of diversity and cultural differences on coaching and mentoring, and provide strategies for developing effective coaching relationships across cultures.
 

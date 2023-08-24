@@ -1,5 +1,3 @@
-Encouraging Rapport and Trust Through Active Listening and Empathy
-==============================================================================
 
 Active listening and empathy are fundamental skills that enable coaches and mentors to establish rapport and build trust with their clients. This chapter delves into the importance of active listening and empathy in the coaching and mentoring relationship. It explores techniques for practicing active listening, fostering empathy, and creating a safe and supportive space for clients to share and grow.
 

@@ -1,5 +1,3 @@
-Fostering a Sense of Connection and Community within Coaching Relationships
-======================================================================================
 
 In the realm of feedback coaching, fostering a strong sense of connection and community is paramount to the success of coaching relationships. This chapter delves into the significance of establishing meaningful connections and creating a supportive community within coaching interactions. We will explore strategies and techniques that coaches can employ to cultivate this sense of connection and foster a thriving coaching community.
 

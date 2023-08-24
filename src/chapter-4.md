@@ -1,5 +1,3 @@
-Chapter 4: Providing Effective Feedback
-=======================================
 
 Effective feedback is a crucial component of coaching and mentoring. In this chapter, we will explore the techniques and strategies necessary for providing constructive feedback in a supportive and productive manner.
 

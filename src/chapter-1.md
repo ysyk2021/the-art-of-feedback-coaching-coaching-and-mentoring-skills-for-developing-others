@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Feedback Coaching
-============================================
 
 Feedback coaching is essential for developing others in the workplace. In this chapter, we will explore the definition and importance of feedback coaching, historical perspectives on coaching and mentoring theory and practice, and the challenges and opportunities of developing others through feedback coaching.
 

@@ -1,5 +1,3 @@
-Understanding the Role of Empathy and Trust in Feedback Coaching Relationships
-=========================================================================================
 
 In feedback coaching relationships, empathy and trust play a crucial role in creating a safe and supportive environment for growth and development. Coaches who demonstrate empathy and cultivate trust can establish stronger connections with their coachees, enabling effective feedback exchange and facilitating meaningful progress. This chapter explores the significance of empathy and trust in feedback coaching relationships, highlighting their impact on communication, learning, and overall coaching effectiveness.
 

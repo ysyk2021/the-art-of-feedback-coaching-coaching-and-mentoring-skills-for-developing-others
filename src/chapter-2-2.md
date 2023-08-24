@@ -1,5 +1,3 @@
-Identifying Common Barriers to Effective Feedback Coaching
-=====================================================================
 
 In the process of feedback coaching, various barriers can impede its effectiveness. Recognizing and addressing these barriers is crucial for coaches to create a supportive and conducive environment for growth and development. This chapter explores some common barriers encountered in feedback coaching and provides strategies to overcome them.
 

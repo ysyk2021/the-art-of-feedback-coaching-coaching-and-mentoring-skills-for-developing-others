@@ -1,4 +1,4 @@
-# Introduction
+
 
 Effective coaching and mentoring can be the key to unlocking individual and organizational potential. However, many managers and leaders struggle with developing these skills and providing constructive feedback. That's where "The Art of Feedback Coaching: Coaching and Mentoring Skills for Developing Others" comes in.
 

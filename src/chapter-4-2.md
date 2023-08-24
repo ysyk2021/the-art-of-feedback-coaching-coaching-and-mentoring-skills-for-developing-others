@@ -1,5 +1,3 @@
-Developing Strategies for Providing Constructive Feedback
-====================================================================
 
 Constructive feedback is a valuable tool for supporting the growth and development of individuals in coaching and mentoring relationships. When delivered effectively, constructive feedback can inspire self-reflection, facilitate learning, and promote positive change. This chapter explores strategies and techniques for providing constructive feedback that is clear, specific, and actionable to maximize its impact.
 

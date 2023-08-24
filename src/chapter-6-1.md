@@ -1,5 +1,3 @@
-Establishing SMART Goals and Objectives for Coaching and Mentoring
-===========================================================================================================
 
 Setting goals and objectives is essential for effective feedback coaching. In this chapter, we will explore the techniques and strategies necessary for establishing SMART goals and objectives for coaching and mentoring.
 
@@ -54,5 +52,4 @@ Holding Individuals Accountable for Their Development and Growth
 Holding individuals accountable for their development and growth is essential for effective feedback coaching. Coaches should hold individuals accountable for achieving their goals and meeting KPIs. They should also set consequences for failing to meet expectations, such as revising the action plan or adjusting performance metrics.
 
 In conclusion, establishing SMART goals and objectives is essential for effective feedback coaching. By setting specific, measurable, achievable, relevant, and time-bound goals, identifying key performance indicators, developing action plans, monitoring progress towards goals, providing ongoing support and encouragement, and holding individuals accountable for their development and growth, coaches can promote personal and professional growth and development, improve job performance and productivity, and contribute to a positive organizational culture.
-
 
