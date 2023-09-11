@@ -1,5 +1,4 @@
-Chapter: Fostering Inclusion and Diversity within Coaching Relationships
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Feedback Coaching: Coaching and Mentoring Skills for Developing Others," we will explore the importance of fostering inclusion and diversity within coaching relationships. Creating an inclusive coaching environment that embraces diversity not only promotes equity and fairness but also enhances the effectiveness of coaching and mentoring initiatives.
 

@@ -1,5 +1,4 @@
-Chapter: Tailoring Your Approach to Different Types of Individuals and Situations
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Feedback Coaching: Coaching and Mentoring Skills for Developing Others," we will explore the importance of tailoring your approach to different types of individuals and situations when providing feedback. Effective feedback coaching requires adapting your communication style and techniques to suit the unique needs, preferences, and circumstances of each person you are coaching or mentoring.
 
